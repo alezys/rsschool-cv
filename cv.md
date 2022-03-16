@@ -10,6 +10,7 @@
 ### About me
 
 I'm 33 years old. I work as an engineer in a factory. I design elevator motors and other elevator equipment.
+I like to learn something new. I like modern information technologies.
 
 ### My Skills
 
